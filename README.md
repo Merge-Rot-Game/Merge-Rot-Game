@@ -2,11 +2,11 @@
 
 Looking for a creative puzzle game that blends the chaotic energy of internet memes with strategic gameplay? **MergeRot** offers an unprecedented merging game experience! This unique puzzle game absorbs the essence of the "Brainrot" cultural phenomenon to create addictive gameplay that challenges your strategic thinking and knowledge of online trends.
 
-## MergeRot - Challenge Your Mental Limits
+## [MergeRot - Challenge Your Mental Limits](https://merge-rot.org/)
 
-**MergeRot** is an engaging puzzle game designed to challenge players' cognitive abilities. With progressively difficult levels and diverse puzzle types, **MergeRot** keeps your brain active and provides hours of entertainment. The unique merging mechanics of this game create a distinctive gaming experience that will keep you coming back for more.
+**[MergeRot](https://merge-rot.org/)** is an engaging puzzle game designed to challenge players' cognitive abilities. With progressively difficult levels and diverse puzzle types, **[MergeRot](https://merge-rot.org/)** keeps your brain active and provides hours of entertainment. The unique merging mechanics of this game create a distinctive gaming experience that will keep you coming back for more.
 
-## MergeRot Gameplay
+## [MergeRot Gameplay](https://merge-rot.org/)
 
 Watch MergeRot gameplay in action!
 
